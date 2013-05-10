@@ -44,3 +44,6 @@
 
 * [Hansel & Gretel] (http://www.imdb.com/title/tt1002567/)  
 *Horror*
+
+* [Wishing Stairs] (http://www.imdb.com/title/tt0370082/)
+*Horror; Absolutely the scariest movie I've ever seen*
