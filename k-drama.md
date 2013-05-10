@@ -28,6 +28,12 @@
 
 ## J-Drama TV
 
+* [Hana Yori Dango] (http://wiki.d-addicts.com/Hana_Yori_Dango)
+*Inoue Mao, Oguri Shun, Matsumoto Jun*
+
+* [Hana Kimi] (http://wiki.d-addicts.com/Hanazakari_no_Kimitachi_e)
+*Horikita Maki, Oguri Shun*
+
 ## Movies
 
 * [A Tale of Two Sisters] (http://en.wikipedia.org/wiki/A_Tale_of_Two_Sisters)  
