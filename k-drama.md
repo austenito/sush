@@ -1,5 +1,7 @@
 # K-Dramas! And J-Dramas too!
 
+## K-Drama TV
+
 * [Secret Garden] (http://wiki.d-addicts.com/Secret_Garden)  
 *Ha Ji-won, Hyun Bin*
 
@@ -23,3 +25,13 @@
 
 * [IRIS] (http://wiki.d-addicts.com/IRIS)  
 *Lee Byung Hun, Kim Tae Hee, Kim So Yun*
+
+## J-Drama TV
+
+## Movies
+
+* [A Tale of Two Sisters] (http://en.wikipedia.org/wiki/A_Tale_of_Two_Sisters)  
+*Horror*
+
+* [Oldboy] (http://en.wikipedia.org/wiki/Oldboy_(2003_film))  
+*Thriller*
