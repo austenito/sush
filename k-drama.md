@@ -36,8 +36,11 @@
 
 ## Movies
 
-* [A Tale of Two Sisters] (http://en.wikipedia.org/wiki/A_Tale_of_Two_Sisters)  
+* [A Tale of Two Sisters] (http://www.imdb.com/title/tt0365376/)  
 *Horror*
 
-* [Oldboy] (http://en.wikipedia.org/wiki/Oldboy_(2003_film))  
+* [Oldboy] (http://www.imdb.com/title/tt0364569/)  
 *Thriller*
+
+* [Hansel & Gretel] (http://www.imdb.com/title/tt1002567/)  
+*Horror*
