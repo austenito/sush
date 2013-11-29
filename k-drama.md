@@ -36,6 +36,20 @@
 * [Hana Kimi] (http://wiki.d-addicts.com/Hanazakari_no_Kimitachi_e)
 *Horikita Maki, Oguri Shun*
 
+* [A Beautiful Life](http://www.jdorama.com/drama.36.htm)
+
+* [Gokusen](http://www.jdorama.com/drama.600.htm)
+
+* [1 Liter of Tears] (http://www.jdorama.com/drama.959.htm)
+
+* [Nobuta wo Produce] (http://www.jdorama.com/drama.961.htm)
+
+* [Summer Snow](http://www.jdorama.com/drama.467.htm)
+
+* [Proposal Daisakusen] (http://www.jdorama.com/drama.1136.htm)
+
+* [Densha Otoko](http://www.jdorama.com/drama.933.htm)
+
 ## Movies
 
 * [A Tale of Two Sisters] (http://www.imdb.com/title/tt0365376/)  

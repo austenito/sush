@@ -46,3 +46,37 @@ Isao Takahata
 (on Hulu!)
 
 * Mushi-shi
+
+* Cowboy Bebop
+
+* Trigun
+
+* Ruroni Kenshin
+
+* Gurren Laggan
+
+* Code Geass
+
+* Neon Genesis Evangelion
+
+* Escaflowne
+
+* Macross Plus
+
+* Samurai Champloo
+
+* Berserk
+
+* Death Note
+
+* Full Metal Alchemist
+
+* Gundam Wing
+
+* The Melancholy of Haruhi Suzumiya
+
+* Love Hina
+
+* Vampire Hunter D
+
+
